@@ -1,5 +1,8 @@
        "𝒱𝐸𝐼𝒩𝐹𝐸𝐼 𝑀𝒴 𝐿𝒪𝒱𝐸
-<img width="1280" height="711" alt="39bec4ae-a1b9-47d0-83ef-9eb30b42a3b9" src="https://github.com/user-attachments/assets/57823ee7-3ade-4303-8c12-1056a71f5261" />
+<img width="736" height="414" alt="91576069ed72c05e9667ac7b3cd42ac4" src="https://github.com/user-attachments/assets/17b507f0-d4fe-4725-8523-b71c8b499153" />
+<img width="400" height="187" alt="video5312013451453837636 (1)" src="https://github.com/user-attachments/assets/0fbb97f8-28c6-4d65-8a3b-f1d8ed64a82d" />
+<img width="400" height="167" alt="video5312013451453837627" src="https://github.com/user-attachments/assets/468da56c-411c-4644-be3c-b175fd33cbd0" />
+
 
 
 
